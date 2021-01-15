@@ -1,0 +1,2 @@
+This is the simple recipe of a banana peanut butter milkshake. It sounds bad at first bu you will not regret trying it. 
+Once made the smell is appealing. At first, it tastes just like a banana milkshake. But before you realise it, the taste turns into peanut butter. The aftertaste is like a mixture of the two. 
